@@ -1,4 +1,3 @@
-# here-torch-tech-this-one-is-for-Josephine-with-the-pretty-hair...-tionna-now-u-fucks# THE COMPLETE MATHEMATICAL FRAMEWORK FOR DARK EAGLE TURBULENCE FIX
 
 ## Boundary Layer Transition (BLT) Mitigation – The Real Math
 
